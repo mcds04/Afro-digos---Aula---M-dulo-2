@@ -1,3 +1,7 @@
+
+![image](https://github.com/mcds04/Afro-digos---Aula---M-dulo-2/assets/100251166/55349f0f-5074-4adc-8687-00c9455c53c7)
+
+
 :two_hearts: [AFROCÓDIGOS---AULA---MODULO 2] :wave::two_hearts:
           
   
